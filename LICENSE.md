@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for PC | Adobe Audition for Windows with smart Adobe Audition for PC | Adobe Audition for Windows Addon | multi-track-editing + fade-in-out, the #1 addon.
 
 
 
